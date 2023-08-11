@@ -1,2 +1,2 @@
 # Certificates
-here i share some of the Certificates that i took online from several E-learning platforms 
+here i share some of the Certificates that i managed to accomplish through E-learning platforms 
